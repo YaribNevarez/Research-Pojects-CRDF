@@ -1,1 +1,1 @@
-# Research Pojects for Central Research Development Fund (CRDF)
+# Research Projects for Central Research Development Fund (CRDF)
